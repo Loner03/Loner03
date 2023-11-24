@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Loner03
-- 👀 I’m interested in money
-- 🌱 I’m currently learning skills to make money
-- 💞️ I’m looking to collaborate on projects that make me money
+- 👀 I’m interested in learning complex things.
+- 🌱 I’m currently learning skills to make money and follow my dream life.
+- 💞️ I’m looking to collaborate on projects that help me learn.
 - 📫 How to reach me arvindersingh0302@gmail.com
 
 <!---
