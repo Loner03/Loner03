@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Loner03
+- 👋 Hi, I’m Arvinder Singh.
 - 👀 I’m interested in learning complex things.
 - 🌱 I’m currently learning skills to follow my dream life.
 - 💞️ I’m looking to collaborate on projects that help me learn.
